@@ -1,0 +1,3 @@
+- 👋 Hi, I’m karanpreet benipal
+- 🌱 I’m currently earning a Bachelors of Mathematics at the University of Waterloo
+- 📫 How to reach me: benipalkaranpreet@gmail.com
